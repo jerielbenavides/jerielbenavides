@@ -1,7 +1,7 @@
 # Jeriel Benavides
 
 **Location:** Pickering, ON  
-**Phone:** 647-250-6242    
+**Phone:** 647-250-6242  
 **LinkedIn:** [linkedin.com/in/jerielbenavides](https://www.linkedin.com/in/jerielbenavides)  
 **Portfolio:** [portfolio.jerielbenavides.com](https://portfolio.jerielbenavides.com)
 
